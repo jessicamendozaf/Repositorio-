@@ -1,4 +1,4 @@
-# Repositorio-
+# Repositorio- Jessica Mendoza- Daniela Barranco
 ¿Cómo puedo usar las librerías expuestas en clases y las herramientas tecnológicas para la resolución de conflictos?
 
 Las herramientas tecnológicas pueden ser utilizadas para la resolución de conflictos de varias maneras, Un ejemplo de esto, se usan para ayudar a los individuos a comunicarse mejor entre sí, para comprender mejor los puntos de vista de los demás y para buscar soluciones creativas. Algunas de estas herramientas tecnológicas incluyen el uso de plataformas de mediación virtual para facilitar el dialogo entre las partes , aplicaciones para la mensajería instantánea y herramientas para la videoconferencia que permite a las personas cambiar de ideas y opiniones. Ademas, estas librerías incluyen materiales de aprendizaje sobre la resolución de conflictos, como artículos, videos, documentos de referencia, etc. Estos recursos facilitan a comprender mejor los conceptos y brinda las bases para la resolución de conflictos.
